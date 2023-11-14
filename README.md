@@ -1,8 +1,8 @@
+# Home           # ACT acadamics            # Software enginnering    # About us     #Contact as                                                                                logout
 
+# Well come to Fasika's Website
 
-#Well come to Fasika's Website
-
-##This is random text from #https://randomtextgenerator.com/ just for testing website creation on github
+## This is random text from #https://randomtextgenerator.com/ just for testing website creation on github
 
 In entirely be to at settling felicity. Fruit two match men you seven share. Needed as or is enough points. Miles at smart ﻿no marry whole linen mr. Income joy nor can wisdom summer. Extremely depending he gentleman improving intention rapturous as.
 
@@ -14,6 +14,8 @@ Give lady of they such they sure it. Me contained explained my education. Vulgar
 
 Was certainty remaining engrossed applauded sir how discovery. Settled opinion how enjoyed greater joy adapted too shy. Now properly surprise expenses interest nor replying she she. Bore tall nay many many time yet less. Doubtful for answered one fat indulged margaret sir shutters together. Ladies so in wholly around whence in at. Warmth he up giving oppose if. Impossible is dissimilar entreaties oh on terminated. Earnest studied article country ten respect showing had. But required offering him elegance son improved informed.
 
+
+
 Mind what no by kept. Celebrated no he decisively thoroughly. Our asked sex point her she seems. New plenty she horses parish design you. Stuff sight equal of my woody. Him children bringing goodness suitable she entirely put far daughter.
 
 Although moreover mistaken kindness me feelings do be marianne. Son over own nay with tell they cold upon are. Cordial village and settled she ability law herself. Finished why bringing but sir bachelor unpacked any thoughts. Unpleasing unsatiable particular inquietude did nor sir. Get his declared appetite distance his together now families. Friends am himself at on norland it viewing. Suspected elsewhere you belonging continued commanded she.
@@ -24,3 +26,4 @@ Of friendship on inhabiting diminution discovered as. Did friendly eat breeding 
 
 Arrived compass prepare an on as. Reasonable particular on my it in sympathize. Size now easy eat hand how. Unwilling he departure elsewhere dejection at. Heart large seems may purse means few blind. Exquisite newspaper attending on certainty oh suspicion of. He less do quit evil is. Add matter family active mutual put wishes happen.
      
+# contact us          # about us      # share          # more
